@@ -1,2 +1,2 @@
 # StudyNotes
-Keep moving!
+**Quest for future, bravely from desire!**
